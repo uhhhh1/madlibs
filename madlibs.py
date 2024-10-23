@@ -14,5 +14,5 @@ a hawk came up to it and said, how much hawk would a hawk hawk tuah if a hawk co
 after talking to the hawk it went to {place1} to get water, but it was STILL WATER. the still water's noradrenaline made it contract {deadlyillness1}
 {noun4} needed chemotherapy to get rid of it, {noun4}'s {organ1} shut down, and  {noun4} died, but came back as a {noun2}
 , the {noun2} had 1 MILLION BEERS, then gambled all of it on {color1} and lost it all.
-after losing all 1 MILLION BEERS, {noun4} became depressed, and homeless, and had to live in a {noun3}
+after losing all 1 MILLION BEERS, {noun4} became depressed, and homeless, and had to live in a
 {noun5}... the end.""")
